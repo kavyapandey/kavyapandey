@@ -7,7 +7,7 @@
 
 - 👨‍💻 You can visit my portfolio at [https://kavya-pandey-portfolio.netlify.app/](https://kavya-pandey-portfolio.netlify.app/)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VnQQ3saFPHukU47m_raHQmmjpCvEGP8x/view](https://drive.google.com/file/d/1VnQQ3saFPHukU47m_raHQmmjpCvEGP8x/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nHPs_T2M7SNixzRiqMhI5PxjOZeCTrlf/view?usp=sharing](https://drive.google.com/file/d/1VnQQ3saFPHukU47m_raHQmmjpCvEGP8x/view)
 
 - ⚡ Fun fact **I am ambidextrous**
 
